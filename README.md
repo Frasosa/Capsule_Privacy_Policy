@@ -1,0 +1,1 @@
+# Capsule_Privacy_Policy
